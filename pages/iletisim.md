@@ -3,4 +3,4 @@ title: İletişim
 permalink: iletisim
 ---
 
-İletişim
+İletişim için: canbirol48 / gmail.com
