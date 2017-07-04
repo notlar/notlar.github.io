@@ -1,1 +1,9 @@
 theme: jekyll-theme-slate
+
+title: [Notlar ve Düşünceler]
+description: [ ]
+
+google_analytics: 
+
+gems:
+  - jemoji
