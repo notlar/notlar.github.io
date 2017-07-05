@@ -32,5 +32,5 @@ permalink: kitap/mutlu-olma-sanati
 
 - *Görülüyor ki, mutsuzluğun psikolojik nedenleri çok ve çeşitlidir. Tipik olarak mutsuz kişi, gençliğinde gönül doyumundan yoksun bırakılmış, doyamadığı bu şeyi diğer doyum biçimlerinden daha önemli görür olmuş, böylece hayatına tek taraflı bir yön vermiş, aynı zamanda o doyum için gerekli girişimlerde bulunmak yerine bütün dikkatini doymak üzerinde toplamıştır. Günümüzde bu durumun daha ileri bir biçimi çok yaygındır. Buna göre, kişi öylesine çaresiz bir durumdadır ki, gönül doyumu aramak yerine, bu eksikliğini unutabilmek için eğlenceye yönelir; kendisini "zevk"e verir. Yani, daha sorumsuz yaşayarak hayatı çekilebilir hale getirmek ister. Örneğin, sarhoşluk geçici bir intihardır; mutsuzluğu bir süre için unutmaktır. Kendini büyük görenle kendine tutkun olan, mutluluğa kavuşmak için yanlış yol tutmuş olmalarına karşılık, mutluluğun mümkün olduğuna inanırlar; ama nasıl olursa olsun sarhoş olmak isteyen, unutmaktan başka çıkar yol bulunmadığına inanmış demektir. Onun durumunda olan birisinin ilk yapması gereken, kendini mutluluğun özenilecek bir şey olduğuna inandırmaktır.*
 
-### 2. Byron Mutsuzluğu
+### 2. Byron Mutsuzluğu
 
