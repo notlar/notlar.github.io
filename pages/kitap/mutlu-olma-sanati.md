@@ -74,4 +74,12 @@ Dünyaya açılın, bir korsan olun, Bomeo'da bir kral, Sovyet Rusya'da bir is
 
 - *Günümüzün varlıklı kişileri ise, tamamıyla farklı olma eğilimindedir. Hiç okumaz. Ününü artırmak için tablo alırsa seçimine uzmanlara bırakır; duyduğu haz, resimleri seyretmekten değil, başkasının onları satın almasına engel olmaktan kaynaklanır. Müziğe gelince, eğer Yahudi ise sanata değer verişi içten ve gerçek olabilir, değilse bu alanda da, diğer güzel sanat alanlarındaki kadar kültürsüzdür. Bütün bunların sonucu şudur ki: Günümüzün zenginleri boş vakitlerini nasıl değerlendireceklerini bilmezler. Varlıkları arttıkça para kazanmaları kolaylaşır; sonunda öyle olur ki, günün her dakikası, nasıl harcayacağını bilemediği kadar gelir getirir. Zavallı adam para kazanmakta başarılı olması nedeniyle karışık bir duruma düşer. Başarı hayatın amacı olarak görüldüğü sürece de bu duruma düşmemesi mümkün değildir. İnsanlara kazandıkları başarıyla ne yapacakları öğretilmedikçe, başarının can sıkıntısına yol açması önlenemez.* 
 
-- 
+- *Sorun kişiye dayanmıyor; üstelik bir kişi bunu tek başma önleyemez. Asıl sorun, hayatı bir rekabet, hem de yarışmayı kazananın saygıyı da kazanacağı bir rekabet olarak gören bir felsefenin benimsenmiş olmasından ileri gelmektedir. Bu görüş, duyguların ve algıların zararına, iradelerin gereğinden fazla gelişmesine yol açar.* 
+
+- *Ortalama olarak, her evlilik başına iki çocuk bile düşmemektedir; çünkü çocuk yapacak derecede hayattan zevk almamaktadırlar. Bu noktada, onların Püriten atalarından devraldıkları, fazla çaba gerektiren felsefeleri dünyaya uygun görünmüyor. Çocuk yapmayı önemsiz kılacak derecede mutlulukları azalanlar, biyolojik bakımdan soyları tükenmeye hüküm giymiş olanlardır. Daha neşeli ve eğlence sever olanlar çok geçmeden bunların yerini alacak demektir.
+
+- *Hayatın özü olarak kabul edilen rekabet, insanları bir ya da en çok iki kuşaktan fazla yaşatmayacak derecede korkunçtur, inatçıdır, gergin kas ve doymaz göz gerektirir.  İki kuşaklık bir süre geçtikten sonra asabi yorgunluk, çeşitli kaçış olayları, çalışma kadar zor ve yorucu (çünkü dinlenmek olanaksız olmuştur) zevk peşinde koşmalar gelir; en sonunda da verimsizlik yüzünden stok tükenir. Rekabet, yalnız çalışmayı değil, eğlenceyi de zehir eder. Sinirler için yatıştırıcı olan sakin oyalanmalar can sıkıcı eğlenceler gibi görünür. Durmadan artan bir hız ve hareket zorunluluğu ortaya çıkar ki, bunun da sonu uyuşturucu kullanmak ve ani çöküştür. Hastalığın tedavisi, amacı bakımından ölçülü bir hayatta, makul ve sakin zevkle  rin rolünü kabul etmekle mümkündür.*
+
+### 4. Can Sıkıntısı ve Heyecan
+
+
