@@ -5,4 +5,5 @@ permalink: kitap
 
 ## Kitap Notları
 
-- [Türkçenin Sırları](kitap/turkcenin-sirlari)
+- [Türkçenin Sırları - Nihad Sâmi Banarlı](kitap/turkcenin-sirlari)
+- [Mutlu Olma Sanatı - Bertrand Russell](kitap/mutlu-olma-sanati)
