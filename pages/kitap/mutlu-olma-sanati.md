@@ -82,4 +82,14 @@ Dünyaya açılın, bir korsan olun, Bomeo'da bir kral, Sovyet Rusya'da bir is
 
 ### 4. Can Sıkıntısı ve Heyecan
 
+- Bence, insan davranışı üzerinde bir etken olarak, can sıkıntısına gerektiğinden az önem verilmektedir. Oysa ben şuna inanıyorum ki, can sıkıntısı, tarih boyunca büyük itici güçlerden birisi olmuştur.
 
+- Can sıkıntısı aslında bir olaylar özlemidir, hem de yalnız hoşa gidecek olaylar değil, bunalım kurbanının bir günü öbüründen ayırt etmesine yardım edecek herhangi bir olayın özlemidir. Can sıkıntısının karşıtı ise, haz değil heyecandır.
+
+- Her şey bir yana, akşamlar eğlenceli, sabahlar can sıkıcıdır. Orta yaşlılık, sonra yaşlılık çağı gelecektir. İnsan yirmi yaşmdayken, otuzuna geldiğinde hayatının sona ereceğini sanır. Ben elli sekiz yaşındayım, onun için bu görüşe artık katılmıyorum. Kişinin yaşam sermayesini, parasım harcar gibi harcaması belki akıllıca bir şey değildir. Belki hayatta biraz da can sıkıntısı bulunması gerekir. Can sıkıntısından kurtulma isteği doğal bir duygudur; bütün insanlar bu sıkıntıdan kaçmak isterler. Vahşiler, beyaz adamın elinden alkolü tattıklarında, yüzyıllardan beri yaşadıkları can sıkıntısından kurtulmuş, hükümetin araya girdiği zamanlar dışında çatlayıncaya kadar içmeye başlamışlardı. Savaşlar, baskınlar, toplu öldürmeler can sıkıntısından kaçmak için yapılmış; hatta komşuyla kavga etmek, hiçbir şey yapmamaktan daha iyi görülmüştür. 
+
+- Heyecan karşıtlığım çok ileri götürmek niyetinde değilim. Belirli bir derecesi iyidir ama her şeyde olduğu gibi bu da bir nicelik işidir. Azı, hastalık derecesinde isteklere, fazlası ise yorgunluğa yol açar. Şu halde, mutlu bir hayat için, belirli derecede can sıkıntısına dayanabilmek şarttır ve bu, gençlere öğretilmesi gereken konulardan biridir.
+
+- En iyi romanların hepsinde sıkıcı bölümler vardır. Birinci sayfasından sonuncu sayfasına kadar göz kamaştıran bir romanın büyük bir yapıt olmaması çok olasıdır. Sokrat, arada bir şölenlerden zevk almış olabilir; baldıran zehri etkisini gösterinceye kadar yaptığı konuşmadan da herhalde epeyce haz duymuştur ama ömrünün büyük bir kısmını, öğleden sonra gezintiye çıkıp, belki yolda birkaç tanıdığa da rastlayarak, Ksantip ile birlikte sakin sakin geçirmiştir. 
+
+- 
