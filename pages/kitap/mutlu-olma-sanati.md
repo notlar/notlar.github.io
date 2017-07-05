@@ -34,3 +34,17 @@ permalink: kitap/mutlu-olma-sanati
 
 ### 2. Byron Mutsuzluğu
 
+- *Aramızda akıllı olanlar, geçmişi öğrenip anlamış ve artık dünyada yaşamaya değer hiçbir şey kalmadığı kanısına varmışlardır; böyle düşünenler aslında mutsuzdurlar. Fakat mutsuzluklarının evrenin doğası gereği olduğuna ve aydm birisinin zaten mutlu olamayacağına inandıkları için mutsuzluklarından kıvanç duyarlar.*
+
+- *Akıllı adam, koşulları elverdiğince mutlu olur ve evreni anlamaya çalışırken acı duymaya başladığı noktada, başka düşüncelere geçer. İşte kitabın bu bölümünde kanıtlamak istediğim budur. Okuru şuna inandırmak istiyorum ki, ileri sürülenler ne olursa olsun, mantık, mutluluğa ambargo konulmasına karşıdır.*
+
+-  *"Ve akıllılık nedir, delilik ve çılgınlık nedir bilmek için yanıp tutuştum; anladım ki bu bile ruh tedirginliği." "Çünkü çok bilenin çok derdi olur ve bilgisini artıranın üzüntüsü de artar."
+Aklı onu tedirgin ettiğinden, akimdan kurtulmak için çok çaba harcar.
+"Gönlüme dedim ki, haydi bakalım biraz da neşelenelim, zevkin tadına varalım. Ve gördüm ki, o da boş."
+Ama aklı hep başındadır.
+"Sonra gönlümden dedim ki, budalanın başma gelen benim de başıma geldi, öyleyse neden budaladan daha akıllıyım? Sonra gönlümden dedim ki, bu da boş.
+Bu nedenle hayattan nefret ettim, çünkü güneş altında yapılan her iş bana üzüntü veriyor, çünkü hepsi boş ve can sıkıntısı."
+Halkın çok eskiden yazılmış olanları okumaması yazar  lar yararına olan bir durumdur, eğer okusalardı, havuzlar üzerine yeniden ne söylenirse söylensin, halk yeni kitaplar yazmanın da boş bir şey olduğu hükmüne varırdı.*
+
+- 
+
