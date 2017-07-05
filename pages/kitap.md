@@ -3,6 +3,6 @@ title: Kitap Notları
 permalink: kitap
 ---
 
-Kitap Notları
+## Kitap Notları
 
-[Türkçenin Sırları](kitap/turkcenin-sirlari)
+- [Türkçenin Sırları](kitap/turkcenin-sirlari)
