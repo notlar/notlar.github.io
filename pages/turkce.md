@@ -3,4 +3,6 @@ title: Türkçe
 permalink: turkce
 ---
 
-Türkçe
+## Türkçe
+
+kinik, kinizm
