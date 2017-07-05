@@ -5,4 +5,4 @@ permalink: kitap
 
 Kitap Notları
 
-[Türkçenin Sırları](turkcenin-sirlari)
+[Türkçenin Sırları](kitap/turkcenin-sirlari)
