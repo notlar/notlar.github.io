@@ -1,6 +1,6 @@
 ---
 title: Kitap Notları
-permalink: kitap-notlari
+permalink: kitap
 ---
 
 Kitap Notları
