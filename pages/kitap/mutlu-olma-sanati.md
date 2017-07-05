@@ -38,7 +38,7 @@ permalink: kitap/mutlu-olma-sanati
 
 - *Akıllı adam, koşulları elverdiğince mutlu olur ve evreni anlamaya çalışırken acı duymaya başladığı noktada, başka düşüncelere geçer. İşte kitabın bu bölümünde kanıtlamak istediğim budur. Okuru şuna inandırmak istiyorum ki, ileri sürülenler ne olursa olsun, mantık, mutluluğa ambargo konulmasına karşıdır.*
 
--  *"Ve akıllılık nedir, delilik ve çılgınlık nedir bilmek için yanıp tutuştum; anladım ki bu bile ruh tedirginliği." "Çünkü çok bilenin çok derdi olur ve bilgisini artıranın üzüntüsü de artar."
+- *"Ve akıllılık nedir, delilik ve çılgınlık nedir bilmek için yanıp tutuştum; anladım ki bu bile ruh tedirginliği." "Çünkü çok bilenin çok derdi olur ve bilgisini artıranın üzüntüsü de artar."
 Aklı onu tedirgin ettiğinden, akimdan kurtulmak için çok çaba harcar.
 "Gönlüme dedim ki, haydi bakalım biraz da neşelenelim, zevkin tadına varalım. Ve gördüm ki, o da boş."
 Ama aklı hep başındadır.
@@ -46,5 +46,21 @@ Ama aklı hep başındadır.
 Bu nedenle hayattan nefret ettim, çünkü güneş altında yapılan her iş bana üzüntü veriyor, çünkü hepsi boş ve can sıkıntısı."
 Halkın çok eskiden yazılmış olanları okumaması yazar  lar yararına olan bir durumdur, eğer okusalardı, havuzlar üzerine yeniden ne söylenirse söylensin, halk yeni kitaplar yazmanın da boş bir şey olduğu hükmüne varırdı.*
 
-- 
+- *Ben de birçok kez, her şeyin boş olduğunu düşündüğüm ruh halinde olmuşumdur; bundan, herhangi bir felsefenin yardımıyla değil, mutlaka yapılması gereken bir şeyi yaparak kurtuldum. Çocuğunuz hastalanırsa mutsuz olabilirsiniz, ama her şeyin boş olduğu duygusuna kapılmazsınız; insan hayatının değerli olup olmadığına bakmadan, çocuğunuzun tedavi işini ele almak gereğini duyarsınız. Varlıklı bir adam her şeyin boş olduğu duygusuna kapılabilir, çoğunlukla da kapılır, ama bütün parasını yitirince, yemeğin nereden geleceğini düşünmeyi hiç de hoş bulmaz. Bu duygu, doğal gereksinimlerin çok kolaylıkla karşılanmasından doğar. İnsanoğlu, diğer yaratıklar gibi, belirli derecede bir hayat mücadelesine kendisini uydurmuştur ve Homo Sapiens zenginlik sayesinde, çaba harcamadan tüm heveslerini yerine getirebildiği zaman, yaşantımdaki bu çaba eksikliği, mutluluk için gerekli bir öğenin ortadan kalkmasıdır. Aşırı olmayan bir istek duyduğu şeylere kolayca kavuşabilen birisi, "isteğin karşılanması mutluluk getirmez" hükmüne varır. Eğer bu kişi filozof yaradılışlıysa: **İnsan her istediğini elde ettiği halde mutlu olamadığına göre, "insan yaşamı aslında sefildir" sonucuna varabilir.** Ancak şunu unutmaktadır ki, istediklerimizin bazılarım elde edememek mutluluğun ayrılmaz bir koşuludur.*
+
+- *Süleyman radyodan dinleyebilseydi, bu onu "hepsi boş" olan ağaçlarıyla havuzlarının arasında teselli etmez miydi? Haber bültenleri yayınlayan bir ajans olsaydı da, kendisine, sarayının göz kamaştırıcı yapısı, haremindeki konfor, rakip kralların yenilgileri hakkında gazetelerin yazdıklarım bildirseydi, hâlâ güneş altında yeni bir şey yoktur der miydi?*
+
+- *Hayat, kadın ve erkek kahraman bir sürü felaket yaşadıktan sonra mutlu bir sonuçla kapanan bir tiyatro oyunu değildir. Ben yaşarım, göreceğimi görürüm, çocuğum benim yerime geçer, o da göreceğini görür; onun çocuğu da onun yerine geçer. Bunda üzülecek ne var? Böyle olmasaydı da sonsuza dek yaşasaydım, yaşamın zevkleri eninde sonunda tatlarını yitirirlerdi... Şimdiyse bu zevkler "her zaman taze"dirler.*
+
+- *Aşka niçin değer verildiğini açıklayabilmek güçtür; ama ne olursa olsun bir deneyeceğim. Aşk, en başta, kendiliğinden bir haz kaynağı olduğu için değerlidir. (Bu, aşkın en büyük değeri değildir, ama diğer değerleri için çok gereklidir.) Kaldı ki, aşk sadece bir haz kaynağı değildir; yokluğu da acı verir. İkinci olarak, aşka değer verilmelidir, çünkü en ince hazları arttırır; örneğin müzikten, ay aydınlığında denizden alınan zevki artırır. Güzel şeylerin tadını sevdiğinin yanında tatmamış birisi, onlardaki büyüleyici gücü tam olarak anlayamaz.*
+
+- *İnsanoğlu işbirliğine muhtaçtır ve doğa kendisine, biraz noksan da olsa, işbirliği için gerekli dostluk içgüdüsünü vermiştir. Aşk, insanları işbirliğine götüren ilk ve en yaygın heyecan şeklidir; sevgiyi şu ya da bu derecede tatmış olanlar, kendileri için en yüksek "iyi"nin, sevilen olmadığım söyleyen bir felsefeyi benimseyemezler. Bu bakımdan annelik-babalık duygusu daha güçlüdür, ama bu duygu daha çok anneyle babanın birbirlerine besledikleri sevginin bir sonucudur.*
+
+Gerçek aşk sönmez ateştir  
+Durmadan yanar gönülde  
+Ne soğur, ne sararır, ne ölür  
+Ne kendi kendine yüz çevirir.  
+
+- *Kitap kurtlarının, toplum yaşayışı ile yakın ilgileri yoktur; oysa hem trajedi, hem de gerçek mutluluğu sürdüren duygu derinliği ve ciddiyeti için böyle bir yakın ilgiye gereksinim vardır. Kendileri için dünyada yapacak hiçbir şey kalmamış olduğu kanısını taşıyan yetenekli gençlere önerim şudur: "Yazmaya çalışmaktan vazgeçin; bunun yerine yazmamaya çalışın.
+Dünyaya açılın, bir korsan olun, Bomeo'da bir kral, Sovyet Rusya'da bir işçi olun; ilkel fiziki gereksinimlerin hemen hemen bütün enerjinizi yutacağı bir hayata başlayın." Bu davranışı herkese değil, Krutch'ın tanımladığı hastalığa yakalanmış olanlara öğütlüyorum. Şuna inanmaktayım ki, birkaç yıl bu şekilde yaşadıktan sonra, aydın kişi, aksini yapmaya çabalasa bile, yazmadan edemeyecek ve bu duruma erişince yazdıkları kendisine gereksiz görünmeyecektir.* **Güzel tavsiye**
 
