@@ -152,4 +152,10 @@ Dünyaya açılın, bir korsan olun, Bomeo'da bir kral, Sovyet Rusya'da bir is
 
 ### 7. Günah Duygusu
 
-- 
+- Şimdi şuna, az sonra ötekine inanarak kendimizi ruh halimizin esintisine bırakmamalıyız. İradenin yorgunluk, hastalık, içki ya da başka bir nedenle zayıfladığı durumlarda günah duygusu daha belirginleşir. İçkili olmak dışında, böyle durumlarda duyguların yüce benlikten gelen ilhamlar olduğu sanılır.
+
+- Bilinçli inançlarınızı öyle bir canlı ve ayak direyici hale getirin ki, bilinçatınıza girip çocukluğunuzda annenizin ya da dadınızın oraya yerleştirdikleri inançları silerek yerlerine mantıklı inançlar koysunlar. Mantıksız inançlarınızın, yerlerini mantıklı olanlara bırakmasıyla yetinmeyin. Saygı göstermeden ve size hakim olmasına fırsat vermeden mantıksız olan inançlarınızı yakından inceleyin. Bilincinize yönelttiği budalaca duygulan ve düşünceleri inceleyip saçma olduklarını anladıktan sonra kökleriyle birlikte söküp atan. 
+
+- Bizim sözde ahlakımız, din adamları ile zihnen köleleştirilmiş olan kadınlar tarafından oluşturulmuştur. Erkeklerin artık dünyadaki olmaları gereken yere geçmelerinin ve bu hastalıklı saçmalığa başkaldırmalarının zamanı gelmiştir.
+
+- Mantıklı olan birisi, bu heyecanları duyduğu zaman sevinir ve onlan azaltmak için hiçbir şey yapmaz, çünkü bütün bu heyecanlar iyi yaşamın öğeleri, yani mutluluk sağlayıcıdır. Hiç kimse mantıklı olursam yaşantım tatsızlaşır diye korkmasın. Tam aksine, mantıklı olmak, manevi bakımdan dengeli olmaktır; mantıklı olan, iç çatışmaları ile uğraşandan daha özgür bir bakışa sahiptir ve enerjisini dış amaçlara yöneltme olanağı vardır. İçe kapanmaktan daha sıkıcı, dikkati ve enerjiyi dışa yöneltmekten daha neşelendirici hiçbir şey yoktur.
