@@ -132,4 +132,24 @@ Dünyaya açılın, bir korsan olun, Bomeo'da bir kral, Sovyet Rusya'da bir is
 
 ### 6. Çekememezlik
 
--
+- Çekememezlik, demokrasinin temelidir. Heraklit, Efes halkı, “aramızda hiç kimse birinci olmayacak" dediği için hepsinin asılması gerektiğini ileri sürmüştür. Eski Yunan devletlerindeki demokratik hareketlerin hemen hemen tamamının çekememezliğe dayandığını düşünüyorum. Aynı şey modem demokrasi için de geçerlidir.
+
+- Anne-babaların evlat sevgisinin kıt oluşu da aynı sonuca yol açan başka bir talihsizliktir. Kendisinden üstün tutulan kız ya da erkek kardeşi olmayan bir çocuk, başka ailelerin çocuklarını daha fazla sevdiklerini fark edebilir. Bu durum  da, hem başka çocuklara, hem de kendi anne-babasına nefret duyar.
+
+- Bütün bu durumların çaresi zihinsel disiplin, yani boş şeyler düşünmeme alışkanlığıdır. Her şey bir yana, mutluluktan daha çok kıskanılacak ne vardır? Ve eğer ben, kıskançlıktan kendimi kurtarabilirsem mutluluğa kavuşabilir, üstelik kıskanılacak birisi olurum. Benim iki katım aylık alan da, kendisinin iki katı aylık alanı düşünerek acı çekmekte ve bu böylece sürüp gitmektedir.
+
+- Alçakgönüllü olanların cesaretlendirilmeye gereksinimleri vardır ve çoğu zaman, kolaylıkla başarabilecekleri işleri bile yapmaya çekinirler. Alçakgönüllü olanlar, çevrelerinde bulunanların kendilerinden daha başarılı olduklarına inanırlar. Bu yüzden çekememezliğe, çekememezliğin mutsuzluğuna ve kötü niyetliliğe eğilimli olurlar. Bir çocuğa değerli olduğunun öğretilmesi gerektiğine inanıyorum.
+
+- Çekememezlik, rekabetle sıkı sıkıya ilgilidir. Ulaşmamızın olanaksız olduğuna inandığımız iyi bir şansı kıskanmayız. Toplumsal katlar değişmez olursa en aşağı katta bulunanlar, zengin ile yoksul arasındaki farkın Tanrı'dan olduğuna inandıkları sürece, daha üst basamaklarda bulunanları kıskanmazlar. Dilenciler, kendilerinden daha fazla para toplayan dilencileri kıskanırlarsa da, milyonerleri kıskanmazlar.
+
+- Uygarlık, bu bakımdan yanlış yola sapmış görünmektedir. Eğer çekememezlik azaltılmak isteniyorsa, bu durumun düzeltilmesi gerekir, eğer düzeltilmezse hepimizin içi nefret dolacaktır. Eskiden insanlar sadece komşularını çekemezlerdi, çünkü başkaları hakkında pek az bilgileri olurdu. Bugün ise, iletişim olanaklarının artması nedeniyle hiç tanımadıkları insanlar hakkında bile genel olarak çok şey biliyorlar. Filmlerden izledikleriyle zenginlerin yaşam biçimlerini bildiklerini sanıyorlar; gazeteler ve televizyon yoluyla diğer ulusların yaptıkları kötülüklerin çoğunu öğreniyorlar.
+
+- Peki, dostluk propagandası neden düşmanlık propagandasından daha az başarılı oluyor? Bunun nedeni şudur: Bugünkü haliyle uygar insanoğlu nefrete dostluktan daha fazla eğilimlidir. Nefrete eğilimlidir, çünkü yaşamından hoşnut değildir, çünkü yaşamın anlamını yitirdiğini, dünya nimetlerinin tadım başkalarının çıkardığını kendisinin birçoğundan yararlanamadığını hissetmektedir.
+
+- Çocuklarınızı hayvanat bahçesine götürdüğünüzde, eğer cambazlık yapmıyor ya da fıstık yemiyorlarsa, maymunların bakışlarındaki üzüntüyü görebilirsiniz. İnsan, neredeyse onların da insan olmak istediklerini, ama bu işin sırrını bir türlü çözemediklerini sanır. Evrim yürüyüşünde yollarım şaşırmışlar, yeğenleri ilerlemiş, onlar geride kalmışlardır. Uygar insanın zihnine de buna benzer bir tedirginliğin yerleşmiş olduğu görülmektedir.
+
+- Uygar insanın, bu umutsuzluk çıkmazından kurtulabilmek için, görüşünü ve zekâsını geliştirdiği kadar gönlünü de genişletmesi gerekir. Nefsini yenmeyi, bunu yaparken de özgürlüğünü kazanmayı öğrenmelidir.
+
+### 7. Günah Duygusu
+
+- 
