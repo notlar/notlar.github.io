@@ -159,3 +159,7 @@ Dünyaya açılın, bir korsan olun, Bomeo'da bir kral, Sovyet Rusya'da bir is
 - Bizim sözde ahlakımız, din adamları ile zihnen köleleştirilmiş olan kadınlar tarafından oluşturulmuştur. Erkeklerin artık dünyadaki olmaları gereken yere geçmelerinin ve bu hastalıklı saçmalığa başkaldırmalarının zamanı gelmiştir.
 
 - Mantıklı olan birisi, bu heyecanları duyduğu zaman sevinir ve onlan azaltmak için hiçbir şey yapmaz, çünkü bütün bu heyecanlar iyi yaşamın öğeleri, yani mutluluk sağlayıcıdır. Hiç kimse mantıklı olursam yaşantım tatsızlaşır diye korkmasın. Tam aksine, mantıklı olmak, manevi bakımdan dengeli olmaktır; mantıklı olan, iç çatışmaları ile uğraşandan daha özgür bir bakışa sahiptir ve enerjisini dış amaçlara yöneltme olanağı vardır. İçe kapanmaktan daha sıkıcı, dikkati ve enerjiyi dışa yöneltmekten daha neşelendirici hiçbir şey yoktur.
+
+### 8. İşkence Korkusu
+
+- 
