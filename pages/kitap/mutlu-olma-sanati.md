@@ -162,4 +162,14 @@ Dünyaya açılın, bir korsan olun, Bomeo'da bir kral, Sovyet Rusya'da bir is
 
 ### 8. İşkence Korkusu
 
-- 
+- Eğer birbirimizin düşüncelerini okuyabilseydik, bence bunun ilk sonucu, bütün dostluklar sona ererdi; ikinci sonucu çok iyi olurdu, çünkü arkadaşsız bir dünya çekilmeyeceğinden, in  sanlar birbirleri hakkmdaki gerçek düşüncelerini saklama ge  reksinimi duymadan dost olmayı öğrenirdi.
+
+-  İyilik yapma içgüdülerimiz, ender durumlarda tertemizdirler. Hükmetme duygusu sinsidir, birçok kılığa girer ve çoğu zaman başkalarma karşı iyi davranışımızdan aldığımız zevkin nedenidir. 
+
+- Bu örneklerin gösterdiği dört gerçeği yeterince anlayabildiğimizde işkence korkusuna karşı korunabiliriz. Bunlardan birincisi: Davranışlarınızın asıl nedeni, size göründüğü gibi yardımseverlik değildir; bunu unutmayın. İkincisi: Yeteneklerinizi gözünüzde büyütmeyin. Üçüncüsü: Kendinize duyduğunuz ilgiyi başkalarından aynı düzeyde beklemeyin. Ve dördüncüsü de: İnsanların çoğu, işkence yapmayı isteyecek kadar sizi düşünmezler.
+
+### 9. Kamuoyu Korkusu
+
+### 10. Mutlu Olmak Hâlâ Mümkün müdür?
+
+- Satranç oynamayı seven birisini ele alalım; bu kişi eğer bekârsa ve varhklıysa bu tutkusunu dizginlemek zorunda değildir, ama evli ve çocuk sahibi ise, üstelik çalışmak zorunluluğu da varsa, satranç düşkünlüğünü büyük ölçüde sınırlandırması gerekir.
